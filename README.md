@@ -4,7 +4,7 @@
 
 > :book: In Japanese, "waiwai" (ワイワイ) is an expression used to describe a lively, cheerful atmosphere with people chatting, laughing, or making happy noises together  
 >  
-> *([this](https://github.com/user-attachments/assets/ab8bb2d9-b254-4283-88f8-0a92cc20178e) is probably the most accurate visual representation of waiwai)*
+> *([this](https://private-user-images.githubusercontent.com/123443918/644680092-b1ccf08d-6cc8-475a-acf1-07e2f1b7427f.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3ODgzMDI3NDQsIm5iZiI6MTc4ODMwMjQ0NCwicGF0aCI6Ii8xMjM0NDM5MTgvNjQ0NjgwMDkyLWIxY2NmMDhkLTZjYzgtNDc1YS1hY2YxLTA3ZTJmMWI3NDI3Zi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwOTAxJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDkwMVQyMjQwNDRaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT01NmJmZGQ5MjVkZjNmNzEzOWY3ZWQ2NjM0ZTQwZWUwNTlkODdjMDIzZjI2MmRkMGFlNmY3NzVhNDRlNzU2YmZjJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.I5Ks5EzbRhG-YXqHFh3PFwKNdA1lIV0k9Q3UcPjsVS0) is probably the most accurate visual representation of waiwai)*
 
 ### <p align="center"> · ♥︎ · </p>
 
