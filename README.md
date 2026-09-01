@@ -1,6 +1,6 @@
 # <p align="center"> <b> :man_dancing: WaiWai :dancer: </b> </p>
 
-![preview](https://github.com/user-attachments/assets/182dbce3-648c-4c5c-9811-3555b51252e9)
+<img width="1280" height="694" alt="theme preview" src="https://github.com/user-attachments/assets/ff940dce-3f30-45dd-ba3a-b0575a76e6a2" />
 
 > :book: In Japanese, "waiwai" (ワイワイ) is an expression used to describe a lively, cheerful atmosphere with people chatting, laughing, or making happy noises together
 
