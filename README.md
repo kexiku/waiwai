@@ -2,7 +2,9 @@
 
 <img width="1280" height="694" alt="theme preview" src="https://github.com/user-attachments/assets/ff940dce-3f30-45dd-ba3a-b0575a76e6a2" />
 
-> :book: In Japanese, "waiwai" (ワイワイ) is an expression used to describe a lively, cheerful atmosphere with people chatting, laughing, or making happy noises together
+> :book: In Japanese, "waiwai" (ワイワイ) is an expression used to describe a lively, cheerful atmosphere with people chatting, laughing, or making happy noises together  
+>  
+> *([this](https://github.com/user-attachments/assets/ab8bb2d9-b254-4283-88f8-0a92cc20178e) is probably the most accurate visual representation of waiwai)*
 
 ### <p align="center"> · ♥︎ · </p>
 
